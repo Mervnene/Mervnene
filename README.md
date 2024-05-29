@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on ...Web design and Cyber security
 - 📫 How to reach me ...mervnene@gmail.com
 - 😄 Pronouns: ...He/Him
-- ⚡ Fun fact: ...
+- ⚡ Fun fact: ...The odds of our reality being a simulation is .... 50/50......maaad!!!
 
 <!---
 Mervnene/Mervnene is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
